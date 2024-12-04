@@ -1,0 +1,1 @@
+# Pausiberle git github öğrenmece falan filan.
